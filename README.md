@@ -1,4 +1,4 @@
-### Hi I'm Mad 👋
+### Hi there!👋
 Discord : JessicaCrz#1337
 <!--
 **M4doT/M4doT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
